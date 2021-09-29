@@ -1,1 +1,1 @@
-https://cdn.discordapp.com/attachments/874705502704128060/892854430599348264/Static.zip
+https://cdn.discordapp.com/attachments/874705502704128060/892857190967283773/Static.zip
